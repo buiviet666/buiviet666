@@ -1,4 +1,4 @@
-### Hi human 👋
+### Hi fellas 👋
 
 - 🔭 I’m currently working on University
 - 💬 Ask me about every thing (with condition if i knew it 🐧)
